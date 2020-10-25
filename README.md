@@ -1,1 +1,1 @@
-# Hashitalks2020
+# Hashitalks 2020 Latinoamerica
